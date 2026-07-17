@@ -1,6 +1,6 @@
 # Hi, I'm Alex Sharp 👋
 
-### Remote Operations Assistant from Kazakhstan 🇰🇿
+Remote Operations Assistant from Kazakhstan
 
 I help founders and startups with:
 
